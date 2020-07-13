@@ -1,4 +1,4 @@
-### Hi there 👋
+### A ignorância é a mão da admiração...
 
 <!--
 **chrysos/chrysos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
